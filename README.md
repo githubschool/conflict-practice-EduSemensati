@@ -3,6 +3,7 @@
 **[PLAY IT HERE (http://ncase.me/polygons)](http://ncase.me/polygons)**
 
 Edited by @EduSemensati
+Edited by @Someone
 
 ---
 
